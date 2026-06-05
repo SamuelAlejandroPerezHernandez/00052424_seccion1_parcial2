@@ -1,0 +1,1 @@
+# 00052424_seccion1_parcial2
